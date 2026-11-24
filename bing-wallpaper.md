@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-25 | [Red squirrel in Cairngorms National Park, Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_EN-US7053432564_UHD.jpg) 
+
 2026-11-24 | [Fiddlehead fern (© Reza Saputra/Getty Images)](https://cn.bing.com/th?id=OHR.FibonacciFern_EN-US6307771770_UHD.jpg) 
 
 2026-11-22 | [Nice, Provence-Alpes-Côte d'Azur, France (© Siripong Kaewla-iad/Getty Images)](https://cn.bing.com/th?id=OHR.RedNice_EN-US9978351403_UHD.jpg) 
